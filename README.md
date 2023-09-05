@@ -1,4 +1,4 @@
-### Hi there 👋, I am [Manisha Banker](https://manisha0918.github.io/mb-Vitae/)!
+### Hi there 👋, I am [Manisha Banker](https://manisha0918.github.io/Manisha0918/)!
 
 <!--
 **Manisha0918/Manisha0918** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
